@@ -4,8 +4,7 @@ Remember the counters? The breakers? The fairly sweatty ranked matches?
 Mick Gordon & Co have yet to find a way to get into Ultratech, cliamp should
 help until then — C-C-C-Combo Breaker! What if your desktop matched the 2013
 reboot’s **brushed logo gold → Fulgore plasma cyan** on a purple Ultratech
-void instead of another flat dark mode? Same dual-accent border trick as
-Asphalt, HEV, Galuga, CS, Cyber Shadow, Doom 2016, Eternal & Caged —
+void instead of another flat dark mode? Same dual-accent border trick as Asphalt, HEV, Galuga, CS, Cyber Shadow, Doom 2016, Eternal, Caged, Rising, Stanley, SF6, T2D & USFIV —
 different arena.
 
 Fighting-game theme for [Omarchy](https://omarchy.org/). Inspired by the look
